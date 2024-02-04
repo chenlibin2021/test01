@@ -3,3 +3,5 @@
 nmbn
  bnmb
  
+bmnbmnb 
+.m.,m
